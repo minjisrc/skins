@@ -1,5 +1,5 @@
 # Skins
-List of skins I use and some edited. (some of them are reuploads because I don't find their links anymore)
+List of skins I use and some edits. (some of them are reuploads because I don't find their links anymore)
 
 If any link stop working let me know.
 
